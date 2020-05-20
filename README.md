@@ -1,1 +1,0 @@
-# FFW-Hille-Bot
